@@ -5,6 +5,9 @@
 #### 35MM
  ### Black & White
 ###### Palolo Valley, O'ahu, Hawai'i , 2019
+![deadend sign peaking over volcanic rock stonewall](pics/palolo/deadend.jpg)
+![glass bottles scattered around  a firehydrantin the overgrown curbside](pics/palolo/bottles.jpg)
+![ ]
   ###### Folds, 2019
   ###### Endless Nights, 2019
   ###### It's a Busy Place, Go at a Steady Pace, 2018
